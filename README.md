@@ -63,5 +63,14 @@ If you enjoyed the game, give it a ⭐ and share with your friends! 🎮😃
 
 ---
 
+## 📬 Contact
+For any queries or suggestions, reach out at:
+📧 Email: kartikrajput4466@gmail.com
+🔗 Linkdin: www.linkedin.com/in/kartik-chauhan-linkdin
+ 
+
 💡 **Enjoy your adventure in the jungle!** 🏕️🔥
+
+
+
 
